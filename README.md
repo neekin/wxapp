@@ -1,0 +1,1 @@
+mybe it work on wechat.but now is toy,don't install
